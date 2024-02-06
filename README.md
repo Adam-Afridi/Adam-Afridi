@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computer & Aviation
 - 🌱 I’m currently learning Computer Programming
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me; Email; theaviationlver2@gmail.com Instagram; addyafridi_aero
+- 📫 How to reach me; Email; theaviationlover2@gmail.com Instagram; addyafridi_aero
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm different, I'm better, I'm talented
 
